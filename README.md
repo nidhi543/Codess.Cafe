@@ -18,6 +18,10 @@ Drishti Jain
 https://www.linkedin.com/in/drishti-jain-b5a26b220/
 
 # Codess.Cafe
+Nidhi khanna
+https://www.linkedin.com/in/nidhi-khanna-/
+
+# Codess.Cafe
 Mani Sindhu
 https://www.linkedin.com/in/sindhu-v-251aa3228/
 
